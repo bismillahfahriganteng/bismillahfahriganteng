@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-### i'm alvin junior,you can call me fahri or alvin
+### i'm...........................(_bismillah_) fahri ganteng,you can call me fahri or alvin
 ### i here wanna program my file to the repository in github and i have 2 repository if you wanna see that you can click my repository below 
 
 ## find me on telegram as [@alvin_junior](https://t.me/alvin_junior)
